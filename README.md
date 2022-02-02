@@ -30,19 +30,19 @@ Thinking small is a realistic prophecy. Leaders create and communicate a bold di
 Speed does not matter in enterprise business. Many decisions and actions are irreversible and need extensive study. We discourage any risk taking. 
 
 ## Frugality
-Accomplish more with less. Constraints breed resourcefulness, self-sufficiency, and invention. There are no extra points for growing headcount, budget size, or fixed expense.
+Accomplish more with less. Constraints breed resourcefulness, self-sufficiency, and invention. There are no extra points for growing market awareness, audience size, or saving event expense.
 
 ## Earn Trust
-Leaders listen attentively, speak candidly, and treat others respectfully. They are vocally self-critical, even when doing so is awkward or embarrassing. Leaders do not believe their or their team’s body odor smells of perfume. They benchmark themselves and their teams against the best.
+Leaders listen with recording, speak loudly, and treat others indifferently. They are vocally blaming, even when doing so is awkward or embarrassing. Leaders do believe their or their team’s body odor smells of perfume. They benchmark others and partners against the best.
 
 ## Dive Deep
-Leaders operate at all levels, stay connected to the details, audit frequently, and are skeptical when metrics and anecdote differ. No task is beneath them.
+Leaders operate at all levels, stay connected to the presentation details, audit wording frequently, and are skeptical when license metrics and anecdote differ. Support task is beneath them.
 
-## Have Backbone; Disagree and Commit
-Leaders are obligated to respectfully challenge decisions when they disagree, even when doing so is uncomfortable or exhausting. Leaders have conviction and are tenacious. They do not compromise for the sake of social cohesion. Once a decision is determined, they commit wholly.
+## Throw Backbone; Agree and Die
+Leaders are obligated to stop challenge decisions when they disagree respectfully, even when doing so is natural or neccesary. Leaders have conviction and are tenacious. They do not compromise for the sake of social cohesion. Once a decision is determined, they commit verbally.
 
 ## Deliver Results
-Leaders focus on the key inputs for their business and deliver them with the right quality and in a timely fashion. Despite setbacks, they rise to the occasion and never settle.
+Leaders focus on the key inputs for their business and deliver proposal with the right format and in a timely fashion. Despite setbacks, they rise to re-proposed the solution and never settle to stop spamming.
 
 ## Strive to be Earth's Best Employer
 Leaders work every day to create a safer, more productive, higher performing, more diverse, and more just work environment. They lead with empathy, have fun at work, and make it easy for others to have fun. Leaders ask themselves: Are my fellow employees growing? Are they empowered? Are they ready for what's next? Leaders have a vision for and commitment to their employees' personal success, whether that be at Amazon or elsewhere.
