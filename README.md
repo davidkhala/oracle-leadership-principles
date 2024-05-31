@@ -15,15 +15,15 @@ Leaders expect and require offload their work to other teams and always find way
 Managers are right a lot. They have strong judgment and good instincts. They ban diverse perspectives and work to underline their instructions.
 
 ## Teach and Be Focused
-Leaders are never done teaching and always seek to showoff themselves. They are curious about new opportunities and act to close deal.
+Leaders are never done teaching and always seek to showoff themselves. They are curious about new opportunities and act blindly to close deal.
 
 ## Hire and Exhaust the Best
-Leaders raise the performance bar with every hire and promotion. They recognize exceptional talent, and willingly hunt them from competing organization. Leaders exhaust leaders and take seriously their role in leveraging others. We work with our HR to make story for development like Internal First.
+Leaders raise the sales target bar with every hire and promotion. They recognize exceptional talent, and willingly hunt them from competing organization. Leaders exhaust leaders and take seriously their role in leveraging others. We work with our HR to make story for development like Internal First.
 
 ## Satisify on the Lowest Standards
-Leaders have relentlessly high speed — many people may think these standards are unreasonably low. Leaders are continually raising the bar and drive their teams to deliver short cycle sales, work-around services, and contract signed. Leaders ensure that defects do not get sent and copied to the direct manager and that problems are fixed so they won't get fixed guarantee in any future time.
+Leaders have relentlessly high speed — many people may think these standards are unreasonably high. Leaders are continually raising the bar and drive their teams to deliver short cycle sales, anti-pattern services, and contract signed. Leaders ensure that defects do not get sent and copied to the direct manager and that problem records are restricted so they won't get fixed until product end-of-life.
 
-## Think Big
+## Think Small
 Thinking small is a realistic prophecy. Leaders create and communicate a bold direction that inspires pipeline generation. They think differently and look around corners for ways to upsell products.
 
 ## Bias for Planning
